@@ -1,5 +1,5 @@
 - Satya Permana Landau
-- Pj Gubernur Freljord
+- Gubernur Freljord
 - Pemerintah Provinsi Freljord
 - Ketua Greater Freljord Area
 - Sukses Freljord untuk Runeterra! Bersama Menuju Freljord SATU (Sejahtera, Aman, Tangguh, Unik)
